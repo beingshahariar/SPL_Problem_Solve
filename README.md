@@ -1,3 +1,3 @@
-Problem Solve ICS Course
+Problem Solve SPL Course
 <br>
 Shahariar Shakib
